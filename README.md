@@ -1,4 +1,4 @@
-# Educator
+Tim or Toan Le
 
 #### Google Certified Educator, Apple Teacher
 
@@ -7,3 +7,5 @@
 
 ## Work Experience
 **IELTS Instructor @ AMES ENGLISH (_April 2023 - March 2024_)**
+
+# Educator
