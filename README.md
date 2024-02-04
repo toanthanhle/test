@@ -1,4 +1,6 @@
-Tim or Toan Le
+hello, glad to have you!
+
+my name is Tim or Toan Le
 
 #### Google Certified Educator, Apple Teacher
 
